@@ -1,4 +1,4 @@
-## Hi there 👋
+## Konnichiwaa!!!👋
 
 Heyyy friend, its me Mahinur Rahman, aka 1NF3RN0, well thats my IGN so nvm hehe :''')
 
@@ -12,4 +12,5 @@ Let me give you a quick info about me:
 - 📫 How to reach me: I dropped some links of my socials you can contact me anytime, I'll try my best to response as soon as possible :D
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I love to play games, I love to watch anime, I love rain
--->
+
+Hajime Mashite : )
